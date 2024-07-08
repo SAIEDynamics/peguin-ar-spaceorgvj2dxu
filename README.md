@@ -1,1 +1,0 @@
-# peguin-ar-spaceorgvj2dxu
